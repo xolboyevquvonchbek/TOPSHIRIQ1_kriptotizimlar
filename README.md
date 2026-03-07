@@ -1,0 +1,2 @@
+# TOPSHIRIQ1_kriptotizimlar
+KRIPTOTIZIMLAR
